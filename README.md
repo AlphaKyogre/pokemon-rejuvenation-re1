@@ -1,1 +1,1 @@
-# pokemon-empyrean-2nd
+# pokemon-rejuvenation-re1
